@@ -1,4 +1,4 @@
-## Current student with projects ┬┴┬┴┤(･_├┬┴┬┴
+## ┬┴┬┴┤(･_├┬┴┬┴
 
 <!--
 **3pnguyen/3pnguyen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
